@@ -2,7 +2,7 @@
 - 👀 I’m interested in swimming\reading\traveling
 - 🌱 I’m currently learning the Economics
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...
+- 📫 How to reach me : E-mail 15275182732@163.com   WEchat : Erika_Z_2021
 
 <!---
 misinformation2022/misinformation2022 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
